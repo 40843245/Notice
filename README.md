@@ -3,4 +3,8 @@ I am senior in college Since I have to study a lot and do lots of work and proje
 
 Thus, I will update my codes in GitHub and my YT videos (named MathGeeks) in less frequency.
 
+My YT video is available in 
+https://www.youtube.com/channel/UCqrIQEZqqjSNpF_CnyfXKzA
+
+
 
